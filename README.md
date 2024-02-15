@@ -13,8 +13,7 @@
 
 - 📫 How to reach me **karthikreddyramireddy2211@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1iZGgxiCS8-01stLUkaW7hoAV8fLXfxI1/view?usp=sharing](https://drive.google.com/file/d/1iZGgxiCS8-01stLUkaW7hoAV8fLXfxI1/view?usp=sharing)
-
+- 📄 Know about my experiences https://drive.google.com/file/d/13enkxkNhgbRY5uAC1azU-uqrEDi2BrDB/view?usp=sharing
 - ⚡ Fun fact **Tomatoes are red**
 
 <h3 align="left">Connect with me:</h3>
